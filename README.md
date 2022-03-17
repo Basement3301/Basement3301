@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @Basement3301
-- 👀 I’m interested in almost everything
-- 🌱 I’m currently learning python
-- 💞️ I’m looking to collaborate on nothing
-- 📫 How to reach me ...
+- Hi, I’m @Basement3301 :}
+- I’m interested in almost everything
+- I’m currently learning python
+- I’m looking to collaborate on nothing
+- How to reach me will be disided in the future
